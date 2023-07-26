@@ -1,0 +1,1 @@
+For blogging content.
